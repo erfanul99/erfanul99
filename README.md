@@ -1,4 +1,4 @@
-/*![](https://static.vecteezy.com/system/resources/previews/000/180/409/non_2x/software-engineers-vector.png)*/
+
 ### Hi there 👋, 
 
 ## About ME
